@@ -1,1 +1,1 @@
-https://github.com/atavlinova/ono-tebe-nado-ad#
+https://github.com/atavlinova/ono-tebe-nado-ad
